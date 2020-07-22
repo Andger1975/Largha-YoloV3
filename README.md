@@ -19,5 +19,5 @@
 
 ### Prerequisites
 
-![Foto](https://1drv.ms/u/s!Avz7gyc9T5RLjbFKxqpAdLlXbSi5Lw?e=fjggbI)
+![Foto](https://hosting.photobucket.com/images/i/Andger_1975/test_detector.jpg?width=319&height=193&fit=bounds&crop=fill)
 
