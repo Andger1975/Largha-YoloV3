@@ -22,12 +22,12 @@
 ![Foto](https://hosting.photobucket.com/images/i/Andger_1975/test_detector.jpg?width=319&height=193&fit=bounds&crop=fill)
 
 
-![Foto](https://hosting.photobucket.com/images/i/Andger_1975/test_detector.jpg?width=319&height=193&fit=bounds&crop=fill)
+![Foto](https://hosting.photobucket.com/images/i/Andger_1975/2020_06_30_(11)_111.png?width=319&height=193&fit=bounds&crop=fill)
 
 
 
-![Foto](https://hosting.photobucket.com/images/i/Andger_1975/test_detector.jpg?width=319&height=193&fit=bounds&crop=fill)
+![Foto](https://hosting.photobucket.com/images/i/Andger_1975/2020_06_30_(11).png?width=319&height=193&fit=bounds&crop=fill)
 
 
-![Foto](https://hosting.photobucket.com/images/i/Andger_1975/test_detector.jpg?width=319&height=193&fit=bounds&crop=fill)
+![Foto](https://hosting.photobucket.com/images/i/Andger_1975/2020_07_16_(2).png?width=319&height=193&fit=bounds&crop=fill)
 
