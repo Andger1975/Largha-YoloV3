@@ -17,7 +17,17 @@
  Разработать программу для обнаружения Ларг в реальном времени. 
 
 
-### Prerequisites
+### Фото
+
+![Foto](https://hosting.photobucket.com/images/i/Andger_1975/test_detector.jpg?width=319&height=193&fit=bounds&crop=fill)
+
+
+![Foto](https://hosting.photobucket.com/images/i/Andger_1975/test_detector.jpg?width=319&height=193&fit=bounds&crop=fill)
+
+
+
+![Foto](https://hosting.photobucket.com/images/i/Andger_1975/test_detector.jpg?width=319&height=193&fit=bounds&crop=fill)
+
 
 ![Foto](https://hosting.photobucket.com/images/i/Andger_1975/test_detector.jpg?width=319&height=193&fit=bounds&crop=fill)
 
